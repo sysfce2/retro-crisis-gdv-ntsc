@@ -26,6 +26,8 @@ Special Thanks
 ___
 **Showcases**
 
+2026.09.27 - [Nintendo DS](https://youtu.be/nlVvn2-zWic) v1
+
 2026.03.21 - [Virtual Boy](https://youtu.be/hOuYV6IDCpE) v1
 
 2026.02.03 - [Atari 2600](https://youtu.be/OFeIFR1e7d8) v1
